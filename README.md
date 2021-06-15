@@ -18,3 +18,4 @@ oyuuvgjrhgufufugyd
 私は凡人です
 私はジョナサン
 いい湯だな
+私は神
