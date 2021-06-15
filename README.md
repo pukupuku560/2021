@@ -17,3 +17,4 @@ oyuuvgjrhgufufugyd
 いい感じ
 私は凡人です
 私はジョナサン
+いい湯だな
